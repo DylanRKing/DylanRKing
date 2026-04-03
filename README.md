@@ -11,4 +11,4 @@ Spent a lot of time building internal applications for a strictly desktop enviro
 
 Also exploring some of my other hobbies during my free time.
 So far I've gotten a lot better at 3D modelling and I've finished a few furniture restoration projects. About to build a cabinet that I modelled at a 1:1 scale for accurate dimensions.
-Hopefully there's gonna be some crossover between all 3 of these hobbies at some point ¯\_(ツ)_/¯
+Hopefully there's gonna be some crossover between all 3 of these hobbies at some point ¯\\_(ツ)_/¯
